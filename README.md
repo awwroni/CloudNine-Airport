@@ -14,7 +14,8 @@
 ## 📷 Screenshots
 ![Screenshot 2025-01-30 090633 - Copy](https://github.com/user-attachments/assets/45c67484-0ffa-411d-b53c-d843ee89de17)
 ![Screenshot 2025-01-30 090820](https://github.com/user-attachments/assets/f672b337-95cd-40f7-b8c5-89424c769576)
-![Screenshot 2025-01-30 090820](https://github.com/user-attachments/assets/ed534e9d-a812-4a81-9b21-98c7f757739e)
+![Screenshot 2025-01-30 091022 - Copy](https://github.com/user-attachments/assets/c35b8908-69a9-4de5-8857-81b7c3e069ec)
+
 
 ![Screenshot 2025-01-30 091559](https://github.com/user-attachments/assets/a215e4a6-393b-4b22-8cd7-0a905a66c64c)
 
